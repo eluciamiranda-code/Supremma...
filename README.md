@@ -104,8 +104,7 @@ Entre la liberación colectiva y la violencia estructural, Supremma y Mazapán s
 - ENLACE Renpy:
 
 
-<img width="2048" height="2647" alt="anxQ8h" src="https://github.com/user-attachments/assets/3447c2dc-f1eb-492a-9b3d-7750a72366ad" />
-
+<img width="300" alt="qr" src="https://github.com/user-attachments/assets/3447c2dc-f1eb-492a-9b3d-7750a72366ad" />
 
 
 ### Conclusiones/Valoración del equipo
