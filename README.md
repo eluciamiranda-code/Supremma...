@@ -106,8 +106,7 @@ Entre la liberación colectiva y la violencia estructural, Supremma y Mazapán s
 ooo ESCANEA AQUÍ!!!:
 
 
-<img width="1024" height="1024" alt="Sin título - 06 de junio de 2026 a las 14 22 01" src="https://github.com/user-attachments/assets/013b465d-cf45-4986-a03d-05e682498cd3" />
-
+<img width="250" height="250" alt="Sin título - 06 de junio de 2026 a las 14 22 01" src="https://github.com/user-attachments/assets/013b465d-cf45-4986-a03d-05e682498cd3" /> 
 
 
 ### Conclusiones/Valoración del equipo
