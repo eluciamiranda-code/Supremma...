@@ -104,8 +104,7 @@ Entre la liberación colectiva y la violencia estructural, Supremma y Mazapán s
 - ENLACE Renpy (itch.io):
 
 
-[<img width="300" alt="qr" src="https://github.com/user-attachments/assets/3447c2dc-f1eb-492a-9b3d-7750a72366ad" />](https://boscodracu.itch.io/lamiradadehuevita2)
-
+https://boscodracu.itch.io/lamiradadehuevita2
 
 ooo ESCANEA AQUÍ!!!:
 
