@@ -101,15 +101,12 @@ Entre la liberación colectiva y la violencia estructural, Supremma y Mazapán s
 - ENLACE Storytelling Arweave: https://arcweave.com/app/project/DvlOqg96dx/play
 
 
-- ENLACE Renpy (itch.io):
-
-
-https://boscodracu.itch.io/lamiradadehuevita2
+- ENLACE Renpy (itch.io): https://boscodracu.itch.io/lamiradadehuevita2
 
 ooo ESCANEA AQUÍ!!!:
 
 
-<img width="1319" height="1432" alt="Sin título - 06 de junio de 2026 a las 14 22 01" src="https://github.com/user-attachments/assets/013b465d-cf45-4986-a03d-05e682498cd3" />
+<img width="1024" height="1024" alt="Sin título - 06 de junio de 2026 a las 14 22 01" src="https://github.com/user-attachments/assets/013b465d-cf45-4986-a03d-05e682498cd3" />
 
 
 
